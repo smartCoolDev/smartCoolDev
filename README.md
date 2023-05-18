@@ -35,7 +35,7 @@ Besides programming, I like delicious food 🥗🥩🌮🍣 and doing sports �
 
 <div align=center>
 
-[![Skype] live:.cid.8d2f28c5c7a06601
+**Skype id:** live:.cid.8d2f28c5c7a06601
   
 </div>
 
